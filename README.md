@@ -14,7 +14,7 @@
 
 🧠 **About Me**  
 - 🧑‍💻 Name: Adam Duta Mursadi  
-- 🌍 Location: Malang, Indonesia  
+- 🌍 Location: Tangerang, Indonesia  
 - 🏢 Company: Gunadarma University (student)  
 - 🔗 Personal Website: _coming soon_  
 
